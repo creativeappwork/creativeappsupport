@@ -1,5 +1,5 @@
 
- ### If you have any queries or wants connect, feel free to email me or send me skype request for support.
+ ### If you have any queries or want to connect, feel free to email me or send me skype request for support.
 
 ## Sudipta Biswas
 ## (Mobile Application and Game Developer)
